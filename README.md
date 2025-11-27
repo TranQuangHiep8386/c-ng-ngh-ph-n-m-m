@@ -1,4 +1,8 @@
 # c-ng-ngh-ph-n-m-m
+
+https://youtu.be/EmC777YcctU
+
+
 công nghệ phần mềm
 Giao diện đăng nhập 
 
